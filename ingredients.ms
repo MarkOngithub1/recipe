@@ -1,0 +1,7 @@
+½ cup butter, melted
+1 cup white sugar
+2 eggs
+½ cup self-rising flour
+⅓ cup unsweetened cocoa powder
+¼ teaspoon salt
+1 teaspoon vanilla extract
